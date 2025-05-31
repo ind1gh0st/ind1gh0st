@@ -1,4 +1,4 @@
-i don't like being percieved :(
+i don't like being percieved :(<br>
 i'm also still learning, be patient please :)
 
 <picture >
